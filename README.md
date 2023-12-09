@@ -2,5 +2,5 @@
 Full Stack
 
 
-Seru seklai belajar dengan kak Vincent
+Seru sekali belajar dengan kak Vincent
 
